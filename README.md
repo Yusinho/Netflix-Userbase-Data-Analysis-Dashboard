@@ -180,7 +180,7 @@ In the interest of a fully robust GitHub report, one figure discrepancy is worth
 
 ## 👤 Author
 
-**(Yusuf Shotunde, LinkedIn: www.linkedin.com/in/yusuf-shotunde /GitHub: https://github.com/Yusinho )**
+**(Yusuf Shotunde, LinkedIn: www.linkedin.com/in/yusuf-shotunde /GitHub: https://github.com/Yusinho/ CV )**
 
 ---
 
